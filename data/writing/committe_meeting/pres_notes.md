@@ -1,0 +1,4 @@
+- don't let the impostor syndrome weigh you down
+- don't let the impostor syndrome weigh you down 
+- don't let the impostor syndrome weigh you down 
+- don't let the impostor syndrome weigh you down 
